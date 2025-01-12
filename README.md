@@ -1,0 +1,2 @@
+# StaAna_ICT9Ruby_Q2PROJECT_Lajom_Jacob
+Q2 PROJECT
